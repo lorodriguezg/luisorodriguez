@@ -1,7 +1,7 @@
 # Portfolio.
 
 Hi! I enjoy solving problems that involve data analysis and process optimization.
-
+uuuuuu
 I’m interested in ...
 
 How to reach me: laesenciadeldato@gmail.com
